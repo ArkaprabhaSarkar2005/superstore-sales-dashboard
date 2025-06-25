@@ -94,6 +94,7 @@ To help businesses identify trends and patterns in sales and profit by visualizi
 
 **Arkaprabha Sarkar**  
 [LinkedIn](https://www.linkedin.com/in/arkaprabha-sarkar-5b6302287)
+📧 Email: s.arkaprabha@iitg.ac.in 
 
 ---
 
